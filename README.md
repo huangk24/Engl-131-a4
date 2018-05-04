@@ -33,7 +33,7 @@ In my family, my grandmother always looking for different soup for us because we
 
 ![picture](./imgs/image5.jpeg)
 
-My grandmother not only has huge influence on my eating habit, but she also teaches me many other things. Although Mandarin is the official language in China and what other people from different countries refer as Chinese language, Cantonese is the dominant language in my hometown and has the second most speaker in China. My grandmother only speaks Cantonese, so I have to speak Cantonese to her, which “force” me to speak more and my Cantonese improved a lot because of that. She also taught me to become a better person overall, such as be polite and nice to other people, learn to frugal, and try to become independent.
+My grandmother not only has huge influence on my eating habit, but she also teaches me many other things. Although [Mandarin](https://en.wikipedia.org/wiki/Mandarin_Chinese) is the official language in China and what other people from different countries refer as Chinese language, [Cantonese](https://en.wikipedia.org/wiki/Cantonese) is the dominant language in my hometown and has the second most speaker in China. My grandmother only speaks Cantonese, so I have to speak Cantonese to her, which “force” me to speak more and my Cantonese improved a lot because of that. She also taught me to become a better person overall, such as be polite and nice to other people, learn to frugal, and try to become independent.
 
 >Pictures of her 80th Birthday.
 
