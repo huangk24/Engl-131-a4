@@ -23,7 +23,7 @@ In my family, my grandmother always looking for different soup for us because we
 > Pork bone with red radish and corn soup
 
 - First boil water and blanch the pork bones for 5 - 10 minutes, and remove remain blood and impurities from the bones, then take them out.
-- Get a new pan of water, put the bones in while water is cold, add couple slices of ginger, and use high heat to cook for 30 - 40 minutes, then low heat for another 20 - 30 minutes.
+- Get a new pan of water, put the bones in while water is cold, add couple slices of ginger, and use high heat to cook for 30 - 40 minutes, then low heat for another 20 - 30 minutes. (If necessary, add hot water instead of cold water into the soup.)
 - Add red radishes and corn into the soup, and cook them for 30 - 40 minutes, or until the radishes become soft.
 - Add salt to the soup as preference in the last 5 - 10 minutes.
 
