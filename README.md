@@ -21,14 +21,15 @@ In **GuangZhou**, the city where I come from, families have the habit of drinkin
 In my family, my grandmother always looking for different soup for us because we drink soup everyday. She knows what to make in a hot summer, what to make in a cold winter, and what to make when someone in my family get sick. Thus, I really like drinking soup, and I try to make it on my own now since I am far away from home. I asked my grandmother the recipe for some of my favorite soup, and here are some direction:
 
 > Pork bone with red radish and corn soup
+
 - First boil water and blanch the pork bones for 5 - 10 minutes, and remove remain blood and impurities from the bones, then take them out.
 - Get a new pan of water, put the bones in while water is cold, add couple slices of ginger, and use high heat to cook for 30 - 40 minutes, then low heat for another 20 - 30 minutes.
 - Add red radishes and corn into the soup, and cook them for 30 - 40 minutes, or until the radishes become soft.
 - Add salt to the soup as preference in the last 5 - 10 minutes.
 
-The soup I made at first does not taste anything like the one my grandmother made, so I asked her what should I do. She gave me suggestions, and now I am pretty happy about my soup because it is healthy and delicious. 
+>The soup I made at first does not taste anything like the one my grandmother made, so I asked her what should I do. She gave me suggestions, and now I am pretty happy about my soup because it is healthy and delicious.
 
-> Soup I made on my own.
+>Soup I made on my own.
 
 ![picture](./imgs/image5.jpeg)
 
