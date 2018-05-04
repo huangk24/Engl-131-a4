@@ -16,7 +16,7 @@ Under the influence of my grandmother’s eating habit, I always pay attention o
 
 ## Soup recipe I learned from my grandmother
 
-In **GuangZhou**, the city where I come from, families have the habit of drinking soup everyday before and after meal, and different soup have different function and benefit to our body.
+In [**GuangZhou**](https://en.wikipedia.org/wiki/Guangzhou), the city where I come from, families have the habit of drinking soup everyday before and after meal, and different soup have different function and benefit to our body.
 
 In my family, my grandmother always looking for different soup for us because we drink soup everyday. She knows what to make in a hot summer, what to make in a cold winter, and what to make when someone in my family get sick. Thus, I really like drinking soup, and I try to make it on my own now since I am far away from home. I asked my grandmother the recipe for some of my favorite soup, and here are some direction:
 
